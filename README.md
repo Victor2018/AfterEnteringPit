@@ -24,16 +24,16 @@
 - 2019年12月2日至2019年12月16日休陪产假，在次月发放的2019年12月工资的时候被扣了￥9103.45元
 
 ### 休婚假申请截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_1.jpg)
+-- ![image](https://i.loli.net/2020/10/22/yXQY9avORAJtcUo.jpg)
 
 ### 2019年9月工资条休婚假考勤扣款截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_2.jpg)
+-- ![image](https://i.loli.net/2020/10/22/iSgeZtqyVEoXczQ.jpg)
 
 ### 休陪产假申请截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_3.jpg)
+-- ![image](https://i.loli.net/2020/10/22/uQSswcnbZEmjtK7.jpg)
 
 ### 2019年12月工资条休陪产假考勤扣款截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_4.jpg)
+-- ![image](https://i.loli.net/2020/10/22/xWIcOH3XGMotUbC.jpg)
 
 ## 你最开始找到哪个部门来维权？
 一开始我先找到的是南山劳动监察大队，想协商解决这个问题。劳动监察大队给公司打了电话了解问题，然后来协商解决。
@@ -67,10 +67,10 @@
 -- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_5.jpg)
 
 ### 2019年10月18日申请调休被拒接截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_6.jpg)
+-- ![image](https://i.loli.net/2020/10/22/m29D5EpK7ycLFtW.jpg)
 
 ### 2019年11月7日申请调休被拒接截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_7.jpg)
+-- ![image](https://i.loli.net/2020/10/22/N1Mu6ajEGyq5V4n.jpg)
 
 
 ## 劳动仲裁什么时候开庭？
@@ -92,7 +92,7 @@
 劳动仲裁的结果是2020年7月出来了的，我是2020年7月6日拿到的裁决书。
 
 ### 劳动仲裁裁决：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_10.jpg)
+-- ![image](https://i.loli.net/2020/10/22/4Thdfpz2RvXtu5E.jpg)
 
 ## 裁决结果出来了，后来执行了么？
 目前还没有，公司不服仲裁裁决结果的第三条向人民法院起诉了（见下图）。法院那边的开庭通知书我已经拿到了，11月开庭，目前在准备证据材料中。。。
