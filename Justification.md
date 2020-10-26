@@ -8,7 +8,7 @@
  - 1.1，在公司大群里面，人事发送了一个考勤制度的文档，对于考勤制度我提的发的消息如下：
 这一天（条）很不人性化，产假和陪产假怎么能提前。（微信截图如下）
 
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_21.jpg)
+-- ![image](https://i.loli.net/2020/10/26/XqHD4y5O2YUCdxE.jpg)
 
  - 1.2，在年会活动2群，当时是有一个人拿着话筒在哪里唱歌，乱吼，我发了一条：这种噪音就不要唱了
  
@@ -20,9 +20,9 @@
 ### 关于第一条消息，既然公司人事把考勤制度发在群里，大家就有提建议的权利。而且我所发的这条消息并没有影响公司什么形象，只是一个建议。
 并且当时并不只是我一人针对公司的考勤制度发消息。为什么我发的就是影响公司形象的言论，别人就不是呢？微信截图如下：
 
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_22.jpg)
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_23.jpg)
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_24.jpg)
+-- ![image](https://i.loli.net/2020/10/26/2uDQzGfEVw9gbWr.jpg)
+-- ![image](https://i.loli.net/2020/10/26/SjsRek8WX51EvpM.png)
+-- ![image](https://i.loli.net/2020/10/26/DaNF8PMhvn5qRgm.png)
  
 ### 关于第二条消息，在年后发的这条消息，是因为当时的那个人唱歌乱吼乱讲，我发了那样一条消息，只是觉得当时他唱歌吵到了我，才发的。
 因为是年会活动群，开个玩笑也很正常。而且并没有提及公司。更谈不上是影响公司形象的言论。
@@ -34,7 +34,7 @@
 -- [2019.11.1点购谈话](http://xima.tv/MWAKJ5?_sonic=0)
 
 - 谈话录音文字版本：
--- [2020.1.9点购谈话轮文字版本](https://github.com/Victor2018/AfterEnteringPit/raw/master/record/2020_1_9.md)
+-- [2020.1.9点购谈话轮文字版本](https://raw.githubusercontent.com/Victor2018/AfterEnteringPit/main/record/2020_1_9.md)
 
 ## 综上所诉：
 本人认为公司解除劳动的根本原因是我申请了劳动仲裁，并非发表什么公司所为的“影响公司形象的言论”。
