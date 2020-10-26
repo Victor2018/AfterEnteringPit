@@ -8,7 +8,7 @@
  - 1.1，在公司大群里面，人事发送了一个考勤制度的文档，对于考勤制度我提的发的消息如下：
 这一天（条）很不人性化，产假和陪产假怎么能提前。（微信截图如下）
 
--- ![image](https://i.loli.net/2020/10/26/XqHD4y5O2YUCdxE.jpg)
+-- ![image](https://i.loli.net/2020/10/26/2uDQzGfEVw9gbWr.jpg)
 
  - 1.2，在年会活动2群，当时是有一个人拿着话筒在哪里唱歌，乱吼，我发了一条：这种噪音就不要唱了
  
@@ -20,7 +20,7 @@
 ### 关于第一条消息，既然公司人事把考勤制度发在群里，大家就有提建议的权利。而且我所发的这条消息并没有影响公司什么形象，只是一个建议。
 并且当时并不只是我一人针对公司的考勤制度发消息。为什么我发的就是影响公司形象的言论，别人就不是呢？微信截图如下：
 
--- ![image](https://i.loli.net/2020/10/26/2uDQzGfEVw9gbWr.jpg)
+-- ![image](https://i.loli.net/2020/10/26/XqHD4y5O2YUCdxE.jpg)
 -- ![image](https://i.loli.net/2020/10/26/SjsRek8WX51EvpM.png)
 -- ![image](https://i.loli.net/2020/10/26/DaNF8PMhvn5qRgm.png)
  
