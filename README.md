@@ -71,7 +71,7 @@
 此时此刻心里舒服多了，憋屈了这么久终于开始了维权之路，也顾不了迟到了，扣工资就扣工资，随它去扣吧。
 
 ### 申请劳动仲裁截图：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_5.jpg)
+-- ![image](https://i.loli.net/2020/10/26/OIH3levnfRdVLtF.jpg)
 
 ### 2019年10月18日申请调休被拒接截图：
 -- ![image](https://i.loli.net/2020/10/22/m29D5EpK7ycLFtW.jpg)
@@ -88,7 +88,7 @@
 -- ![image](https://i.loli.net/2020/10/23/dFVoiIplkD8Zhes.jpg)
 
 ### 延期2020年5月11日下午14时30分开庭通知书：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_9.jpg)
+-- ![image](https://i.loli.net/2020/10/26/hXxyHQATpWK6eJF.jpg)
 
 ## 劳动仲裁开庭的时候你的心情是怎么样的，紧张么？
 开庭那天的前一个晚上我基本没怎么睡，辗转发侧，一想着要开庭就睡不着。毕竟从申请劳动仲裁到开庭这中间等了差不多半年。
