@@ -3,7 +3,7 @@
 # 深圳市点购电子商务控股股份有限公司 真实坑人解刨
 
 ### 扫码查看深圳市点购电子商务控股股份有限公司坑人全过程：
--- ![image](https://i.loli.net/2020/10/22/3TCVMRXzB4GvUYH.png)
+-- ![image](https://i.loli.net/2020/11/05/Y5KLcMWb7unQdkA.png)
 
 # 当前进度：正在等待11月份法院开庭。。。
 
@@ -105,7 +105,7 @@
 目前还没有，公司不服仲裁裁决结果的第三条向人民法院起诉了（见下图）。法院那边的开庭通知书我已经拿到了，11月开庭，目前在准备证据材料中。。。
 
 ### 南山法院开庭通知书：
--- ![image](https://github.com/Victor2018/AfterEnteringPit/raw/master/images/st_11.jpg)
+-- ![image](https://i.loli.net/2020/11/05/z6lJPjYR9CG7LZb.jpg)
 -->
 
 
