@@ -35,13 +35,13 @@
 -- ![image](https://i.loli.net/2020/10/22/yXQY9avORAJtcUo.jpg)
 
 ### 2019年9月工资条休婚假考勤扣款截图：
--- ![image](https://i.loli.net/2020/10/22/iSgeZtqyVEoXczQ.jpg)
+-- ![image](https://i.loli.net/2021/02/08/YXSnlOU4RPpG5st.jpg)
 
 ### 休陪产假申请截图：
 -- ![image](https://i.loli.net/2020/10/22/uQSswcnbZEmjtK7.jpg)
 
 ### 2019年12月工资条休陪产假考勤扣款截图：
--- ![image](https://i.loli.net/2020/10/22/xWIcOH3XGMotUbC.jpg)
+-- ![image](https://i.loli.net/2021/02/08/njDr1KlzceGOIE2.jpg)
 
 ## 你最开始找到哪个部门来维权？
 一开始我先找到的是南山劳动监察大队，想协商解决这个问题。劳动监察大队给公司打了电话了解问题，然后来协商解决。
